@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Saptarshi1104
 - 👀 I’m interested in Cricket
-- 🌱 I’m currently learning Grade 6
+- 🌱 I’m currently learning Grade 7
 - 🥳 My hobby is gardening
 
 <!---
